@@ -1,0 +1,1 @@
+# Konya-plan-n-baslat
